@@ -1,4 +1,5 @@
 ## Hola 👋 Soy Gabriela Cuéllar Fernández 🌿
+<img width="1024" height="1024" alt="data-for-sustaible-futures" src="https://github.com/user-attachments/assets/d004920b-b6b9-43cc-8232-b8c73ef1563e" />
 
 💼 Analista de Datos y Profesional en Gestión Empresarial con enfoque en sostenibilidad e innovación.
 
