@@ -35,7 +35,7 @@ Portafolio de Análisis de Datos
 
 🌐 Conectemos
 
-🔗 LinkedIn
+🔗 LinkedIn: https://www.linkedin.com/in/gabriela-cuellar-f/
 
 📧 gcfernandez13@gmail.com
 
